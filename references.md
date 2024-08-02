@@ -1,1 +1,2 @@
-contact Mario Rossi for any detailes
+# References
+contact Mario Rossi for any detail
