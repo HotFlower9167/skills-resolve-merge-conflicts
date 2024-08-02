@@ -1,3 +1,2 @@
 # References
-
-* octocat 1 😈
+contact Mario Rossi for any detail
